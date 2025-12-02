@@ -1,0 +1,1 @@
+# mynody-assets
